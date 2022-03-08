@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-🌱 I am now studying Business Administration in Chung-ang University    
+🌱 I am studying Business Administration in Chung-ang University    
 🌱 I’m currently interesting and learning AI/ML/DL. 
 
 
