@@ -2,7 +2,8 @@
 
 
 🌱 I am now studying Business Administration in Chung-ang University    
-🌱 I’m currently learning AI/ML/DL. 
+🌱 I’m currently interesting and learning AI/ML/DL. 
+
 
 📫 How to reach me: danielwon01@gmail.com
 
